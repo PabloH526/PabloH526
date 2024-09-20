@@ -2,4 +2,5 @@
 
 Meu nome é Pablo Henrik
 
-- Estou estudando no Alura;
+- Estou estudando no Alura
+- Já é
