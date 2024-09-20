@@ -2,4 +2,4 @@
 
 - **Estudando [Alura](https://www.alura.com.br/)!!!**
 
-![](https://media1.tenor.com/m/h-fQB_FC578AAAAC/shannon-sharpe-shay.gif)
+![](https://tenor.com/pt-BR/view/adm-meme-membro-discord-cargos-gif-6450913306028141770)
