@@ -2,4 +2,4 @@
 
 - **Estudando [Alura](https://www.alura.com.br/)!!!**
 
-![](https://media1.tenor.com/m/MN-JZXeX_QMAAAAC/fight-me-come-at-bro.gif)
+![](https://media1.tenor.com/m/h-fQB_FC578AAAAC/shannon-sharpe-shay.gif)
